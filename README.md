@@ -28,6 +28,9 @@ imagen
 codigo 
 https://docs.google.com/document/d/1PzzpjMyIPQ0T01muuOpWqDe2jERJKfDr8T0frMTT0FQ/edit?usp=sharing 
 
+video
+https://drive.google.com/file/d/11WeACBg2oQI2eJhn3caVtmdqgE8cc2Gq/view?usp=sharing
+
 ________________________________________________________________________________________
 Ejercicio 2
 ________________________________________________________________________________________
@@ -36,4 +39,7 @@ https://drive.google.com/file/d/11UllAULXMIB0DibGFD312UdousM8-KKM/view
 
 codigo
 https://docs.google.com/document/d/12jFj2Sa_359j15Ma7fs4b8Cdg1r7q2G0y4cbXyfB-2c/edit?usp=sharing
+
+video
+https://drive.google.com/file/d/1Z7jnz5RIM8G4s73UE8CWn1akJpSTnMR9/view?usp=sharing
 
