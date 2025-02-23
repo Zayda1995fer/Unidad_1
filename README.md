@@ -19,3 +19,23 @@ ________________________________________________________________________________
 ![Imagen de WhatsApp 2025-02-22 a las 19 10 28_422eec66](https://github.com/user-attachments/assets/c6386f37-1006-4744-b89b-cefec18472b6)
 ![Imagen de WhatsApp 2025-02-22 a las 19 10 28_2bc1fd6e](https://github.com/user-attachments/assets/8b1bb2d3-3b86-46d1-a7cb-8fd7006b43f1)
 
+
+________________________________________________________________________________________
+Elercicio 1
+________________________________________________________________________________________
+imagen
+![image](https://github.com/user-attachments/assets/47e906d4-377a-4feb-99ec-4d9a7ba44ecf)
+codigo 
+https://docs.google.com/document/d/1PzzpjMyIPQ0T01muuOpWqDe2jERJKfDr8T0frMTT0FQ/edit?usp=sharing 
+
+video
+________________________________________________________________________________________
+Ejercicio 2
+imagen
+https://drive.google.com/file/d/11UllAULXMIB0DibGFD312UdousM8-KKM/view
+
+codigo
+https://docs.google.com/document/d/12jFj2Sa_359j15Ma7fs4b8Cdg1r7q2G0y4cbXyfB-2c/edit?usp=sharing
+________________________________________________________________________________________
+
+
